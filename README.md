@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vansh2003mrt@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eiAQG1bL1WjX6Am7acbh7EyuESAJ1j1m/view?usp=sharing](https://drive.google.com/file/d/1eiAQG1bL1WjX6Am7acbh7EyuESAJ1j1m/view?usp=sharing)
+- 📄 Here is my Resume [Resume](https://drive.google.com/file/d/1mJ8ptAtIvlwgZXQ3Enhsf8wPwtZflff-/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
